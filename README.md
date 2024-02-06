@@ -1,1 +1,1 @@
-Hey, I'm Ayush, it's nice to see you. I'm a recent graduate out of Berkeley and currently interested in finding an entry-level software development position. You can reach me via email at ayush.sm@gmail.com. 
+Hey, I'm Ayush, it's nice to see you. Currently working at Ascend.io. Always happy to chat so feel free to reach out if you're interested!
